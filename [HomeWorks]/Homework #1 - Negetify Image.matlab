@@ -1,0 +1,1 @@
+% TODO: Tasvir ra Negative Konid
